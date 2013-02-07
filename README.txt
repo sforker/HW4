@@ -1,2 +1,0 @@
-shane forker
-cubs
